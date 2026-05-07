@@ -1,4 +1,4 @@
-
+Experience bedwars like never before with ultimate Script for bedwars, the #1 Script. Includes unlimited stamina and one-hit kill for unbeatable
 
 
 
